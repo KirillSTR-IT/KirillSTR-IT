@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @KirillSTR-IT
 - 👀 I’m interested in Streaming
 - 🌱 I’m currently learning Programming
-- 💞️ I’m looking to collaborate on Twitch1000vievsAVG
+- 💞️ I’m looking to collaborate on Twitch1000viewsAVG
 - 📫 How to reach me t.me/bankaSTR
 - 😄 Pronouns: noalcohol
 - ⚡ Fun fact: streamer_89sqd
